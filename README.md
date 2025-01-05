@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @amancodes12
 - 👀 I’m interested in singing 
-- 🌱 I’m currently learning web development 
-- 💞️ I’m looking to collaborate on
+- 🌱 I’m currently learning Java 
+- 💞️ I’m looking to collaborate on...
 - 📫 How to reach me 
 - 😄 Pronouns: Yoooo
 - ⚡ Fun fact: Always active 
