@@ -2,7 +2,7 @@
 - 👀 I’m interested in singing 
 - 🌱 I’m currently learning Java 
 - 💞️ I’m looking to collaborate on...
-- 📫 How to reach me 
+- 📫 How to reach me @ insta:- aman_here_1295
 - 😄 Pronouns: Yoooo
 - ⚡ Fun fact: Always active 
 
