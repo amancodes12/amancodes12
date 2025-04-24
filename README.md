@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @amancodes12
 - 👀 I’m interested in singing 
 - 🌱 I’m currently learning Java 
-- 💞️ I’m looking to collaborate on...
-- 📫 How to reach me @ insta:- aman_here_1295
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me @ insta:- https://www.instagram.com/aman_here_1295/
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Always active 
 
