@@ -2,7 +2,7 @@
 - 👀 I’m interested in singing 
 - 🌱 I’m currently learning WebD
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me @ insta:- https://www.instagram.com/aman_here_1295/
+- 📫 How to reach me @ instagram and linkedin :- https://www.instagram.com/aman_here_1295/  &&&  https://www.linkedin.com/in/aman-yadav-01040534b/
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Always active 
 
